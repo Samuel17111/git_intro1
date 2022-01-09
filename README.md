@@ -1,1 +1,2 @@
 Samuel Schneider
+schneisa@oregonstate.edu
